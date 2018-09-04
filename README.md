@@ -1,1 +1,1 @@
-#VALIDA«√O
+# VALIDA√á√ÉO
